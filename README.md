@@ -1,3 +1,2 @@
-## Hi there 👋
 
-![](https://tenor.com/pt-BR/view/крутой-юджи-прыгает-.gif)
+https://tenor.com/pt-BR/view/svrainy-ratio-hold-hollow-purple-gojo-gif-11710953180468479731
