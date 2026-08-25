@@ -1,2 +1,2 @@
 
-![]("https://tenor.com/pt-BR/view/yuji-yuji-itadori-higuruma-hiromi-higuruma-gavel-gif-7989222125184946746")
+![]("https://tenor.com/pt-BR/view/itadori-jjk-modulo-gif-18247920159789441922")
