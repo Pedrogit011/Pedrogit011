@@ -1,2 +1,2 @@
 
-![]("https://tenor.com/pt-BR/view/itadori-jjk-modulo-gif-18247920159789441922")
+![]("https://tenor.com/pt-BR/view/itadori-jujutsu-kaisen-edit-gif-11761062310995689329")
