@@ -1,2 +1,1 @@
-
-![]("https://tenor.com/pt-BR/view/cool-dangerous-gif-19503411.gif")
+![](https://tenor.com/pt-BR/view/yuji-jjk-edit-gif-4472392864631453490)
